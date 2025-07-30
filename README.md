@@ -2,7 +2,7 @@
 
 <div align=center> 
   
-  ![](https://i.postimg.cc/hv2Z9k2p/mememe.gif)
+  ![](https://i.postimg.cc/c1hKGndG/mememe-2.gif)
   </div>
 <div align=center> 
 
